@@ -1,5 +1,5 @@
 # 💫 About Me:
-Senior Aeronautical Engineering Student at Istanbul Technical University<br> 
+ Aeronautical Engineering Student at Istanbul Technical University<br> 
 
 
 ## 🌐 Socials:
